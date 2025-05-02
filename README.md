@@ -25,3 +25,4 @@
 | ![](https://avatars.steamstatic.com/e14095d56b145323753f122ee06d356219962ac8.jpg) | 40kyellowskin | [76561199758345786](https://steamcommunity.com/profiles/76561199758345786/) | ✅           | 2024-08-15 11:45:53 |                |          |
 | ![](https://avatars.steamstatic.com/610e2e2514cacb1d1b0acc87e52e83b97f96b5be.jpg) | 黑见芹香          | [76561199134567081](https://steamcommunity.com/profiles/76561199134567081/) | ✅           | 2024-08-10 10:35:55 |                |          |
 | ![](https://avatars.steamstatic.com/ee0e6adb9c075b0b40cbedba2f8699d1c040ca6c.jpg) | monkey  king  | [76561198421525338](https://steamcommunity.com/profiles/76561198421525338/) | ✅           | 2023-04-29 12:29:56 |                |          |
+| ![](https://avatars.steamstatic.com/ad29119e159ad52986115ecd1b80abaf30cc94fa.jpg) | 占戈土豪奇兵        | [76561199221271446](https://steamcommunity.com/profiles/76561199221271446/) | ✅           | 2025-05-01 16:04:59 |                |          |
